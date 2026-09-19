@@ -227,4 +227,4 @@ IGdm is offered as the **full free version** with all features and updates inclu
 Enhance your Instagram messaging experience today with IGdm! Click the download button above to get started!
 
 ---
-**Last updated:** 2026-09-19 19:04:55 UTC
+**Last updated:** 2026-09-19 21:56:46 UTC
